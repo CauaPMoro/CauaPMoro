@@ -6,7 +6,9 @@
 - 🌱 I’m currently learning **at the Faculty of Informatics**
 
 - 💬 Ask me about: **food, play, work, what kind of person I am, and many other things**
-
+ 
+- 🤔 I’m looking for help with projector design and creation
+  
 - 📫 How to reach me: [linktr.com](https://linktr.ee/cauamoro?utm_source=linktree_profile_share&ltsid=9bb53ccb-3102-4cd8-96ba-b4918d2306cd) 
 
 - 😄 Pronouns: **he/him**
