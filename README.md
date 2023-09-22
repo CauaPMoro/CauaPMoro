@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Cauã Moro</h1>
 <h3 align="center">A passionate junior developer from Brazil</h3>
 
-![]https://cdn.discordapp.com/attachments/1085342290085691402/1154575610111344640/c1fc9d7f6ae08d56f2b84e81799790a5.gif
+![](https://cdn.discordapp.com/attachments/1085342290085691402/1154575610111344640/c1fc9d7f6ae08d56f2b84e81799790a5.gif)
 
 - 🌱 I’m currently learning **at the Faculty of Informatics**
 
