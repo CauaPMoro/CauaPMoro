@@ -3,6 +3,8 @@
 
 ![](https://cdn.discordapp.com/attachments/1085342290085691402/1154575610111344640/c1fc9d7f6ae08d56f2b84e81799790a5.gif)
 
+Computer science student , game , among other things.
+
 - 🌱 I’m currently learning at the Faculty of Informatics
 
 - 💬 Ask me about: food, play, work, what kind of person I am, and many other things
