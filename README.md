@@ -3,15 +3,15 @@
 
 ![](https://cdn.discordapp.com/attachments/1085342290085691402/1154575610111344640/c1fc9d7f6ae08d56f2b84e81799790a5.gif)
 
-- 🌱 I’m currently learning **at the Faculty of Informatics**
+- 🌱 I’m currently learning at the Faculty of Informatics
 
-- 💬 Ask me about: **food, play, work, what kind of person I am, and many other things**
+- 💬 Ask me about: food, play, work, what kind of person I am, and many other things
  
 - 🤔 I’m looking for help with projector design and creation
   
 - 📫 How to reach me: [linktr.com](https://linktr.ee/cauamoro?utm_source=linktree_profile_share&ltsid=9bb53ccb-3102-4cd8-96ba-b4918d2306cd) 
 
-- 😄 Pronouns: **he/him**
+- 😄 Pronouns: he/him
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
