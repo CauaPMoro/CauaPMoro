@@ -5,6 +5,8 @@
 
 - 💬 Ask me about **food, play, work, what kind of person I am, and many other things**
 
+- 📫 How to reach me **https://linktr.ee/cauamoro**
+
 - 😄 Pronouns: **he/him**
 
 <h3 align="left">Connect with me:</h3>
